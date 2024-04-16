@@ -12,4 +12,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-2D/3D artist with a STEM background
+
+(\(\
+( -.-)
+o_('')('')
